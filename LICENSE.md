@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with automatic Scripts for pls donate, the #1 Script. Includes auto-collect and undetectable for unbeatable
 
 
 
